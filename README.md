@@ -1,1 +1,1 @@
-# SpamWa
+# spindiamondgratis
